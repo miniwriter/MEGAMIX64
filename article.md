@@ -1,5 +1,16 @@
 # MEGAMIX 64 est votre partenaire pour créer des événements mémorables grâce à des animations sur mesure, des jeux originaux et des attractions pour tous les âges
 
+<p>
+<img
+      style="border: 1px solid rgb(199, 199, 199); max-width: 900px;"
+      alt=""
+      border="0"
+      data-original-height="771"
+      data-original-width="1897"
+      src="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEjl0lyJ7tAG4gxQyMyTXh98EqZ5YzSptgEnY0ejqfw7bif98msf3KB9QHd_KH_E6tie2N5i-v7L4TsLDOoCof61rNgdiyhsHzrpURFf68LVnBTKLdxpt5989tA9ZDsMSxfsxapHIBWEP1Cbji8NZN8btVu-B2tvWW2X7_DI1xqIhYkyPJTo8-7lcnniNb2i/s1600/Screenshot%202024-12-26%20165341.png"
+  />
+</p>
+
 Organiser un événement inoubliable, qu’il soit privé ou professionnel, peut sembler un défi. Mais avec [**MEGAMIX64**](https://megamix64.fr/), tout devient simple et amusant. Depuis plus de 20 ans, nous mettons notre passion et notre expertise au service de vos projets pour créer des moments mémorables qui raviront vos invités. De la [**location de jeux**](https://megamix64.fr/) originaux aux animations sur mesure, nous sommes là pour transformer vos idées en réalité, toujours avec professionnalisme et bonne humeur.
 
 Que ce soit pour un anniversaire, un mariage, une fête d’entreprise ou une kermesse, MEGAMIX 64 propose des solutions adaptées à tous les publics et toutes les envies. Basés au cœur du Pays Basque, et actifs également dans les Landes et le Gers, nous apportons une touche unique à vos événements grâce à des animations innovantes, des attractions captivantes et un service impeccable. Faites-nous confiance pour que votre événement devienne une expérience inoubliable, à partager et à célébrer!
